@@ -1,5 +1,5 @@
 ### Hi there 👋
-Aspiring Light Novel Author
+Aspiring Light Novel Author, you can read my stories at [https://lore.atemosta.com/](https://lore.atemosta.com/)
 
 <!--
 **Ousikai/Ousikai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
